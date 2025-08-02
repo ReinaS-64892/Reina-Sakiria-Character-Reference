@@ -12,7 +12,7 @@ VRChat に住む、一般かわいいエンジニア
 
 Reina_Sakiria の 主に VRChat 上でのアバターに対して色濃く反映される、 Reina_Sakiria をキャラクターとして(ある種の VTuber-VLiver として)見た時に付与されている設定の資料集。
 
-Reina_Sakiria(人物) の Reina_Sakiria(キャラクター) に対する妄想でもあります。
+つまり、Reina_Sakiria(人物) の Reina_Sakiria(キャラクター) に対する妄想資料集です！
 
 ## 読み方
 
